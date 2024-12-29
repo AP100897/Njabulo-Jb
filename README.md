@@ -1,5 +1,5 @@
 pyii
-
+.kick
 <img src="https://i.imgur.com/dBaSKWF.gif" height="90" width="100%">
 
 ## ✅𝐓𝐇𝐄 𝐁𝐎𝐓 𝐈𝐒 100% 𝐒𝐀𝐅𝐄 𝐎𝐍 𝐇𝐄𝐑𝐎𝐊𝐔💯
